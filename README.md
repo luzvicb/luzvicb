@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Technical Project Management 
 - 📫 How to reach me luzvicsita@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I ride a rode bike. 
+- ⚡ Fun fact: I love a road bike. 
 
 <!---
 luzvicb/luzvicb is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
